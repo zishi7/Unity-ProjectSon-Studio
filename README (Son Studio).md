@@ -5,3 +5,5 @@ Kelompok Son Studio
 - Muhammad Abyan Safaraz
 - Achmad Fauzan
 - Azis Liudi Hada
+
+  omaygad
